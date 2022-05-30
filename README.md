@@ -1,3 +1,3 @@
 # hemangjoshi37a.github.io
 
-My Wwebsite : [https://hjLabs.in](https://hjlabs.in/)
+My Website : [https://hjLabs.in](https://hjlabs.in/)
